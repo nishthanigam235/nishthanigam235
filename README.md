@@ -2,7 +2,7 @@
 
 🧠Computer Science student at PSIT,Kanpur</br>
 👩🏻‍💻With the specialization in Artificial Intelligenec and Machine Learning</br>
-🔗Linkedin(https://www.linkedin.com/in/nistha-nigam/)
+
 
 
 
