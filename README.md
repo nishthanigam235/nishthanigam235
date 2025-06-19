@@ -1,6 +1,6 @@
 ## Hi ,I'm Nistha✨
 
-🧠Computer Science student at PSIT,Kanpur</br>
+🧠Computer Science student at Pranveer Singh Institute of Technology,Kanpur</br>
 👩🏻‍💻With the specialization in Artificial Intelligenec and Machine Learning</br>
 
 
